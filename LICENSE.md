@@ -1,4 +1,4 @@
-# 
+# Principal degen coin sniper bot plantillas para Mac OS | Ligero degen coin sniper bot plantillas para PC Windows. Con seguimiento de precios y detección de sandwich — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
